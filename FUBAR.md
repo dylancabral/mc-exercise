@@ -6,9 +6,10 @@
 
 ## This is Ted & Alice. Would you please stop talking food. I havn't had a cheeseburger in almost 2 years. I need Red Robin soooooo bad!
 
+
 *oh yeah italic bologna* 
 
 - angelos
 - doesnt like
 - being put on the spot by mike 
-
+## Im super sleepy and want to go to bed.
