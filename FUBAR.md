@@ -15,6 +15,14 @@
 
 ## If you want to buy a car in 2022. Just don't
 
+
+## If you want to buy a car in 2022. Just don't!
+
+*holy friggin cow this is a lot
+
 ## This lab is absolutely ridiculous and I am now an expert at Markdown
 
+
 ## I just want to rock to trivium in two week. It needs to hurry up already!!!
+
+
